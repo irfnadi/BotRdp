@@ -1,4 +1,4 @@
-## BOT IRFAN X NINDA
+## BOT IRFAN 
 
 ini semua gratis, jangan pelit ⭐️ ya :D
 DONASI : 082286425538 (GOPAY & PULSA)
